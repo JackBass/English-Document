@@ -9,6 +9,8 @@ https://www.youtube.com/watch?v=VYoqPb4rvPM  丸山贵雄 滑雪教学视频 (�
 
 http://www.addic7ed.com/  -- 非常好用的一个网站，可以下载美剧的字幕，学英语必备
 
+https://www.ldoceonline.com/  -- Longman Dictionary of Contemporary English
+
 Learn different ways to say that you don't like something !
 
 What do you dislike about living in London ?
